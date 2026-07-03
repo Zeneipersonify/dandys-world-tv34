@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with premium dandy's world Scripts, the #1 Script. Includes undetectable and auto-farm for unbeatable
 
 
 
